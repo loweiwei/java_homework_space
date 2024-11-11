@@ -1,1 +1,1 @@
-作業是在HOMWWORK1喔 謝謝 辛苦了
+作業是在HOMEWORK1喔 謝謝 辛苦了
